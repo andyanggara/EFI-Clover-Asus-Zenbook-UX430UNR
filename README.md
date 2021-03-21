@@ -1,0 +1,1 @@
+# EFI-Clover-Asus-Zenbook-UX430UNR
